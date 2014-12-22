@@ -35,9 +35,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Heire begynnis the traitie of Orpheus kyng and how he yeid to hewyn: to hel to seik his quene and an
+
 #####Body#####
-Heire begynnis the traitie of Orpheus kyng and how he yeid to hewyn: to hel to seik his quene and an
+THe nobilnes and grete magnificenceOff prince or lord quha list to magnifyHis grete ancester and lin
 **Types of content**
 
   * There are 517 **verse** lines!
